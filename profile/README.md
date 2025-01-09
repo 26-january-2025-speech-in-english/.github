@@ -1,6 +1,6 @@
 # Celebrating the Spirit of Republic Day: Honoring Our Nation's Legacy
 
-Good Morning Everyone,  
+Good Morning Everyone,  [Click Here](https://m.indiamart.com/proddetail/2853235280130.html?utm_source=Gamingwithbrother.ff&utm_medium=affiliate&utm_campaign=0125&utm_content=204)
 
 Respected [Principal/Chairperson/Chief Guest], teachers, parents, and my dear friends,  
 A very Happy Republic Day to all of you! Today, as we gather here to celebrate the 76th Republic Day of our nation, let us take a moment to honor the spirit of India and its people.  
